@@ -24,6 +24,3 @@ Course Instructor :-
 **_IN JAM IFTA KHAR NUR_**
 
 
-
-
-
